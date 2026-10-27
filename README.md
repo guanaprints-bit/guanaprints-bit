@@ -1,16 +1,20 @@
-## Hi there 👋
+# Guanaprints | Regalos personalizados en El Salvador
 
-<!--
-**guanaprints-bit/guanaprints-bit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Creamos regalos y detalles personalizados para celebrar momentos especiales. Trabajamos desde **Santa Ana, El Salvador**, con corte y grabado láser en MDF y productos personalizados.
 
-Here are some ideas to get you started:
+## Productos
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Relojes de pared y detalles decorativos personalizados
+- Cajas, recuerdos e invitaciones para bodas, quinceaños y otras celebraciones
+- Tazas personalizadas
+- Diseños con nombres, frases y detalles a medida
+
+## Cotiza tu pedido
+
+Cuéntanos qué producto buscas, el diseño o texto, la cantidad y el lugar de entrega. Te ayudamos a revisar opciones y preparar tu cotización.
+
+**[Escríbenos por WhatsApp](https://wa.me/50372892625)** · **[Ver catálogo](https://guanaprints-bit.github.io/catalogos-guanaprints/)**
+
+🚚 **Envío gratis a todo El Salvador.**
+
+También puedes encontrarnos en [Facebook](https://www.facebook.com/guanaprints/) e [Instagram](https://www.instagram.com/guanaprints/).
