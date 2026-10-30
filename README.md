@@ -13,7 +13,7 @@ Creamos regalos y detalles personalizados para celebrar momentos especiales. Tra
 
 Cuéntanos qué producto buscas, el diseño o texto, la cantidad y el lugar de entrega. Te ayudamos a revisar opciones y preparar tu cotización.
 
-**[Escríbenos por WhatsApp](https://wa.me/50372892625)** · **[Ver catálogo](https://guanaprints-bit.github.io/catalogos-guanaprints/)**
+**[Escríbenos por WhatsApp](https://wa.me/50372892625)** · **[Ver catálogo](https://guanaprints.com/)**
 
 🚚 **Envío gratis a todo El Salvador.**
 
